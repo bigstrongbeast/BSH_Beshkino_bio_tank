@@ -1,3 +1,0 @@
-pokla
-LAPTOP-EL6GK8EN 
-29 июля 2024 г.  19:47:25
